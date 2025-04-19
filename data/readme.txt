@@ -1,1 +1,0 @@
-Do not edit any files, editing files will void any warranty and may ban you from this software. 
